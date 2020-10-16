@@ -19,3 +19,16 @@ Dưới đây là thông tin của các thành viên trong nhóm
 - Sở thích: Đọc sách
 
 ---
+## Thông tin SV2:
+
+- Họ tên: Nguyễn Trọng Nghĩa
+
+- Email: ntnghia8480@gmail.com
+
+- Website: https://www.facebook.com/nghia.nguyentrong.3990/
+
+- Trường: Bách khoa TP.Hồ Chí Minh
+
+- Sở thích: Đọc truyện.
+
+---
