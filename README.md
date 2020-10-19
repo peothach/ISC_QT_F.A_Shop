@@ -32,3 +32,18 @@ Dưới đây là thông tin của các thành viên trong nhóm
 - Sở thích: Đọc truyện.
 
 ---
+
+## Thông tin SV3:
+
+- Họ tên: Nguyễn Hữu Thạch
+
+- Email: thachnhps10818@fpt.edu.vn
+
+- FB: https://www.facebook.com/peothach.97/
+
+- Trường: FPT Polytechnic
+
+- Sở thích: Đọc truyện, xem phim
+
+---
+
