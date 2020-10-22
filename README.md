@@ -47,3 +47,14 @@ Dưới đây là thông tin của các thành viên trong nhóm
 
 ---
 
+## Thông tin SV4:
+
+- Họ tên: Vương Trị An
+
+- Email: vuongtrian116@gmail.com
+
+- FB: https://www.facebook.com/vuong.trian/
+
+- Trường: Đại Học Công Nghệ Thông Tin (UIT)
+
+- Sở thích: Nghe nhạc, du lịch
